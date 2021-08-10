@@ -1,0 +1,1 @@
+# foto-na-plitku2
